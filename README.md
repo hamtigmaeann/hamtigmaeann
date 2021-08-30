@@ -1,1 +1,1 @@
-Hi, this is my Portfolio
+Hi, this is my Portfolio & Gallery
